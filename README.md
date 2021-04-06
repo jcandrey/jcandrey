@@ -10,3 +10,6 @@ Tengo años de experiencia de trabajo y manejo de grupos.
 Continuamente busco aggiornarme en los temas que me interesan para
 estar permanentemente actualizado.
 Poseo además amplios conocimientos de Wordpress con Elementor, Photoshop, Fireworks, Illustrator, After Office y Adobe XD.
+
+Me podés encontrar en
+Linkedin: https://www.linkedin.com/in/juan-carlos-andreychuk-591982202/
