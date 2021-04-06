@@ -1,3 +1,5 @@
+![image](https://user-images.githubusercontent.com/70403449/113774766-169a4280-96fe-11eb-9a58-bd9f4d85d173.png)
+
 Después de varios años trabajando en MKT, en septiembre de 2020 decidí
 volver a mis orígenes con la idea de reinsertarme laboralmente en el área de
 programación full stack. Lejos de la programación estructurada con la cual me
