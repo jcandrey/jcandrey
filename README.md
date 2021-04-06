@@ -12,4 +12,4 @@ estar permanentemente actualizado.
 Poseo además amplios conocimientos de Wordpress con Elementor, Photoshop, Fireworks, Illustrator, After Office y Adobe XD.
 
 Me podés encontrar en
-Linkedin: https://www.linkedin.com/in/juan-carlos-andreychuk-591982202/
+**[Linkedin](https://www.linkedin.com/in/juan-carlos-andreychuk-591982202/)**
